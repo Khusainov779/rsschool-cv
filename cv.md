@@ -7,9 +7,9 @@
 > #### Contact Infomation
 >
 > - **Home Address:** 19 Zulfiyahonum 1/64, Tashkent, UZB
-> - **Telegram:** https://t.me/HB433
+> - [Telegram](https://t.me/HB433)
 > - **Phone number:** +998 91 433 44 43
-> - **LinkedIn:** https://www.linkedin.com/in/bunyad-khusainov-868432159
+> - [LinkedIn](https://www.linkedin.com/in/bunyad-khusainov-868432159)
 
 > #### Skills
 >
